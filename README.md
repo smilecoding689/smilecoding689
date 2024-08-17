@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @smilecoding689
+- 👀 I’m interested in animals,coding & animation
+- 🎨artist
+- 😺 cats are my favourite
+- 😄 Pronouns: she/her
